@@ -23,6 +23,8 @@
 3. Add other contributors
 4. Fork the repository
 5. Take a bath
+6. Take a deep breath in the mirror 
+7. Dance the night away
 6. Dinner
 
 Raihan, Coba coba
